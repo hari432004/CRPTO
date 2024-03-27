@@ -1,1 +1,1 @@
-# CRPTO
+# CRYPTO
